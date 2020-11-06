@@ -1,0 +1,1 @@
+The Sports industry in Russia has seen an increase in profits for two leading sportswear and athleisure brands brand (Nike and Adidas) for the past one year. This has led to the emergence of premium sports startups such as Lublu, which would want to take advantage of this opportunity and get a market share.
